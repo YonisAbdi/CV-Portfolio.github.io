@@ -1,5 +1,5 @@
 
-# Välkommen till min GitHub-sida! 👋  
+# Välkommen till min GiHub-sida!
 
 Hej och välkommen! 😊  
 
